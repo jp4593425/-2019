@@ -14,4 +14,3 @@
 
 ![](https://github.com/jp4593425/ssr-/blob/master/%E6%8D%95%E8%8E%B7.JPG)
 
-![](https://github.com/jp4593425/ssr-/blob/master/(WP9J9B8QO0%6038%7DXPD%25M553.png)
