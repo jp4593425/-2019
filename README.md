@@ -1,7 +1,7 @@
 ### 酸酸乳使用教程
 [酸酸乳使用教程(蓝奏云)](https://www.lanzous.com/b258733)
 
-[酸酸乳使用教程(Onedrive)【推荐】](https://1drv.ms/f/s!AmWIHMwCirfbc415hslnRCrXp5s)
+[酸酸乳使用教程(Onedrive)](https://1drv.ms/f/s!AmWIHMwCirfbc415hslnRCrXp5s)
 
 ### 酸酸乳客户端DownLoad
 [客户端下载](https://www.lanzous.com/b0v9x9zc)
